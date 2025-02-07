@@ -2,4 +2,4 @@
 
 <p align="center"> hi im mizu im usually at dw area sometimes with my bf or my friends but c+h is awesome with me if im unaccompanied 
 
-whispers are preferred but im mostly offtab so a reponse isnt guaranteed
+<p align="center"> whispers are preferred but im mostly offtab so a reponse isnt guaranteed
