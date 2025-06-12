@@ -1,5 +1,4 @@
-<p align="center"> <img width="50" <img src="https://komarev.com/ghpvc/?username=dapperlyfestive&color=yellow&style=for-the-badge&label=">
-<p align="center"> <img width="300" src="https://file.garden/ZeQWIBqOoVX2psSC/e73c4280-474b-49f2-bdc2-1ef5316c6927.jpeg" alt="burps">
+<p align="center"> <img width="350" src="https://files.catbox.moe/ehkvna.gif" alt="burps">
 
 
 <p align="center"> — + . 🎈 . + —
